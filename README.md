@@ -1,8 +1,8 @@
-# Mante-Mourning-Hall
+# Manthe-Mourning-Hall
 
-欢迎来到Mante的奇妙灵堂
+欢迎来到Manthe的奇妙灵堂
 
-由于Mante在forums.vape.gg发布辱华言论和封锁中国ip，特此来整个活
+由于Manthe在forums.vape.gg发布辱华言论和封锁中国ip，特此来整个活
 
 Vape可能会倒闭，但不会变质
 
