@@ -1,11 +1,9 @@
-# Manthe-Mourning-Hall
+# CXY-Mourning-Hall
 
-欢迎来到Manthe的奇妙灵堂
+欢迎来到陈星宇2011的奇妙灵堂
 
-由于Manthe在forums.vape.gg发布辱华言论和封锁中国ip，特此来整个活
+由于陈星宇2011使用ToDesk到处远控破坏电脑，特此来整个活
 
-Vape可能会倒闭，但不会变质
+陈星宇2011可能会远控，但不会退网
 
-你不想吃这口饭，别人抢着吃
-
-请允许我们在此献上最后的告别，以此纪念其在中国MC寄圈留下的回忆与足迹。
+（修改自<https://github.com/build233/Mante-Mourning-Hall>，侵权联系<xiaoyuan2233666@163.com>删除）
